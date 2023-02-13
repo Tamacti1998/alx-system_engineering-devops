@@ -1,1 +1,1 @@
-Hello World
+A gif is worth ten thousand words
