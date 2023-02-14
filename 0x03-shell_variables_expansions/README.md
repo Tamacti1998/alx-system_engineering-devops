@@ -1,1 +1,1 @@
-Every addition
+Divide and rule
