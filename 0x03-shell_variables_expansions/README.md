@@ -1,1 +1,1 @@
-Divide and rule
+script that displays
