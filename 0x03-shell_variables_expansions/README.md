@@ -1,1 +1,1 @@
- If the path be beautiful
+If the path be beautiful
