@@ -1,1 +1,1 @@
-I'm an instant star.
+I'm an instant star
